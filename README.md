@@ -1,0 +1,1 @@
+# hyouketsu-reijou-sama-wo-follow-shitara-mechamecha-dekiai-sareteshimatta-ken
